@@ -1,0 +1,2 @@
+# premium-bird-photography-001-bird-photography-wildlife-sh
+Tired of scrolling through thousands of bird photos, struggling to remember which settings nailed that perfect BIF shot, or which hotspot delivered the best golden-hour light?  This tracker transforms your bird photography workflow by providing a single, organized system to log every outing, gear configuration, and species encounter. Instead of rel
